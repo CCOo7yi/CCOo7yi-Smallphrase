@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CCOo7yi
-- 👀 learning makes me happy 
-- 🌱 Learning will make me grow even more 
-- 💞️ Expect yourself to improve a little bit every day 
-- 📫 work hard！
+-  learning makes me happy 
+- Learning will make me grow even more 
+- Expect yourself to improve a little bit every day 
+- work hard！
